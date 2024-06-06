@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rezafznzlkrn
+- 👀 I’m interested in Physics, Graphic Design, and Web Development
+- 🌱 I’m currently learning Physics
+- 💞️ I’m looking to collaborate on Science and Engineering Related Graphic Design
